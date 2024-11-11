@@ -1,1 +1,0 @@
-# Alex_Show_OK
